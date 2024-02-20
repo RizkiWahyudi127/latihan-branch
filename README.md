@@ -1,2 +1,4 @@
 # Latihan dulu bro
-Belajar Github Kuy
+Belajar Github Kuy<br>
+Seru bangett
+MANTAP DEHH
